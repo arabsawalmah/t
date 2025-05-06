@@ -1,1 +1,1 @@
-# t
+Football, also known as soccer in some countries, is a globally celebrated sport that brings people together. Played by two teams of eleven players, the game revolves around skill, strategy, and teamwork to score goals. Its universal appeal lies in its simplicity and the passion it ignites among fans worldwide.
